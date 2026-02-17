@@ -10,8 +10,11 @@
 
 
 📫 Let's Connect
+
 📧 Email: pratyushkush2005@outlook.com
+
 📸 Instagram: https://www.instagram.com/official___pratyush__/?__pwa=1#
+
 💼 LinkedIn: www.linkedin.com/in/pratyush-kush-1b345722b
 
 
